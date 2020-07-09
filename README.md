@@ -15,5 +15,6 @@ FPT University, HCMC Campus
 ## Contact me via
 [GitHub](https://github.com/minhtn1709)
 [Facebook](https://www.facebook.com/minh2ws)
+[Email](trnnhtminht1709@gmail.com)
 
 #### © 2020 by MinhTran
